@@ -1,1 +1,1 @@
-![Image of Spartina](https://en.wikipedia.org/wiki/Spartina_alterniflora#/media/File:Spartina_alterniflora.jpg)
+<p><a href="https://commons.wikimedia.org/wiki/File:Spartina_alterniflora.jpg#/media/File:Spartina_alterniflora.jpg"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7d/Spartina_alterniflora.jpg/1200px-Spartina_alterniflora.jpg" alt="Spartina alterniflora.jpg"></a><br>Public Domain, <a href="https://commons.wikimedia.org/w/index.php?curid=455326">Link</a></p>
