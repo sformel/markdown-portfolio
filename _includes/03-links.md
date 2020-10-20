@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+1. [SFORMEL Github](sformel.github.io)
+2. [Tulane](www.tulane.edu)
